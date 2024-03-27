@@ -1,5 +1,5 @@
 <p align="center">
-<b>SILVER</b> HE 17 ACE TGUY AUTISCHIZO + DISABLED, SEMI VERBAL</br>
+<b>SILVER</b> HE 17 ACE TGUY AUTISCHIZO + DISABLED [DND = NV]</br>
 i am highly antisocial and socially inept .. also Hi jj😆😆😆😆😆</br>
 my spinterests are mcr, pokemon, sonic and lemon demon o(^_^)o</br>
 do not interact if you're under 15 or proship </br></br>

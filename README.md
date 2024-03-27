@@ -1,6 +1,7 @@
 <p align="center">
 <b>SILVER</b> HE 17 ACE TGUY AUTISCHIZO + DISABLED</br>
 i am highly antisocial & socially inept, usually semi verbal ^.^</br>
+i liek sitting with friends so if you see me or i see you .... i will sit</br>
 my spinterests are mcr, pokemon, sonic & lemon demon o(^_x)o</br>
 do not interact if you're under 15 or proship </br>
  also Hi jj😆😆😆😆😆!!!</br></br>

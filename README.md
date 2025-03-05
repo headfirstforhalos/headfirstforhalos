@@ -1,6 +1,5 @@
 <p align="center">
-<b>DNI</b> irls proship tt/td -15 endo nsfw<br>
-Minors dni if you're in 18+ Lol...!!!!!<br>
-rentry wip ;-;<br>
-fuck my derp life
+<b>DNI</b> irls proship tt/td -16 endo nsfw<br>
+Tfem lesbian, I love my girlfriend<br>
+Send me stuff!!!!! <a href="https://iero.straw.page" target="new">strawpage</a><br>
 <br>

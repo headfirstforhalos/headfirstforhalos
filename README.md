@@ -1,7 +1,7 @@
 <br><br>
 
 <img src="https://files.catbox.moe/qhz1x1.png" align="left"></img> <img src="https://64.media.tumblr.com/9a5e37e127e70f14ff40cef073b448ec/03e8cf592819c2d7-d4/s250x400/e6af9f50a5ebab7276dcfb75bef3ce773daaa00f.gif" align="left"> </img> <img src="https://i.imgur.com/QdMAX8p.gif" align="left"></img>
-  <br> <b>DNI</b> irls proship tt/td -16 endo tcc radinclus um yeh
+  <br><b>DNI</b> irls proship tt/td -16 endo tcc radinclus um yeh
   <br>I type SLOW because my keyboard is broken.i sorry...
   <br><i>18</i> - <b>Disabled</b> Butch Tfem les, I love my girlfriend~~
   <br>Ummm I don't talk much unless I int first but you
